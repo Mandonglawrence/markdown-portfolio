@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- Dream big
+- Plan how to achieve
+- Pay the price to achieve it
+- Have faith and exercise patience as you work hard
