@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[PHOTO](https://images.app.goo.gl/D8Kg1PckEpwdZZQt8)
